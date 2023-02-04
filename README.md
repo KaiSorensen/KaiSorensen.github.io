@@ -1,6 +1,8 @@
 # KAI SORENSEN GITHUB
 
-[Visit my Profile](https://github.com/KaiSorensen)
+[Visit my profile!](https://github.com/KaiSorensen)
+
+
 
 ## About Me
 
